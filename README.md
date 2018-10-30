@@ -1,1 +1,1 @@
-# Lab
+# seminary
